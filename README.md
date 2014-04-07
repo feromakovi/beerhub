@@ -9,3 +9,4 @@ My records of Beer-Driven Research since 2014.
 4. [Primátor - English Pale Ale](img/IMG_20140406_143249.jpg)
 5. [Bakalář - Medový Speciál](img/IMG_20140406_211948.jpg)
 6. [Primátor - Weizenbier](img/IMG_20140407_012519.jpg)
+7. [Kaltenecker - IPA Galaxy 14](img/IMG_20140407_204906.jpg)
