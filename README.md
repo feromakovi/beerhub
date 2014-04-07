@@ -11,3 +11,4 @@ My records of Beer-Driven Research since 2014.
 6. [Primátor - Weizenbier](img/IMG_20140407_012519.jpg)
 7. [Kaltenecker - IPA Galaxy 14](img/IMG_20140407_204906.jpg)
 8. [Trebic - Psenicne 12](img/IMG_20140407_210231.jpg)
+9. [Mikkeller Amarillo Imperial IPA](img/IMG_20140408_001543.jpg)
