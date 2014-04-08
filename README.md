@@ -12,3 +12,4 @@ My records of Beer-Driven Research since 2014.
 7. [Kaltenecker - IPA Galaxy 14](img/IMG_20140407_204906.jpg)
 8. [Trebic - Psenicne 12](img/IMG_20140407_210231.jpg)
 9. [Mikkeller Amarillo Imperial IPA](img/IMG_20140408_001543.jpg)
+10. [Černá Hora - Kvasar s medem](img/IMG_20140408_231535.jpg)
