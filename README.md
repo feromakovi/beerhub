@@ -21,3 +21,4 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 16. [Velkopopovicky Kozel](img/IMG_20140410_001941.jpg)
 17. [Bakalář - Medový Speciál](img/IMG_20140411_004927.jpg)
 18. [Carlsberg](img/IMG_20140412_011355.jpg)
+19. [Šariš Red - polotmavý ležiak](img/IMG_20140416_225959.jpg)
