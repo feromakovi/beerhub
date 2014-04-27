@@ -32,3 +32,4 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 27. [Bakalar za studena chmeleny](img/IMG_20140424_220510.jpg)
 28. [Primator Double 24](img/IMG_20140425_003801.jpg)
 29. [Krombacher Weizen](img/IMG_20140426_012140.jpg)
+30. [Merlin Černý](img/IMG_20140427_034542.jpg)
