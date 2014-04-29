@@ -33,3 +33,7 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 28. [Primator Double 24](img/IMG_20140425_003801.jpg)
 29. [Krombacher Weizen](img/IMG_20140426_012140.jpg)
 30. [Merlin Černý](img/IMG_20140427_034542.jpg)
+31. [Chotebor Cerne Premium](img/IMG_20140428_193152.jpg)
+32. [Stupavar Red Ale](img/IMG_20140428_200424.jpg)
+33. [BrewDog Jack Hammer](img/IMG_20140428_204318.jpg)
+34. [Primator Double 24](img/IMG_20140425_003801.jpg)
