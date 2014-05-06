@@ -37,3 +37,5 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 32. [Stupavar Red Ale](img/IMG_20140428_200424.jpg)
 33. [BrewDog Jack Hammer](img/IMG_20140428_204318.jpg)
 34. [Primator Double 24](img/IMG_20140425_003801.jpg)
+35. [Kounic](img/IMG_20140429_225649.jpg)
+36. [Singha](img/IMG_20140506_014120.jpg)
