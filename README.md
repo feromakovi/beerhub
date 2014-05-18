@@ -45,3 +45,7 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 40. [Matuska California](img/IMG_20140513_193407.jpg)
 41. [Nomad Karel IPA](img/IMG_20140513_201527.jpg)
 42. [Primator Rytirsky 21](img/IMG_20140507_041817.jpg)
+43. [Šariš Red - polotmavý ležiak](img/IMG_20140404_234333.jpg)
+44. Budweiser
+45. Budweiser
+46. [Šariš Red - polotmavý ležiak](img/IMG_20140404_234333.jpg)
