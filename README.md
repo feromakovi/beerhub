@@ -49,3 +49,7 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 44. Budweiser
 45. Budweiser
 46. [Šariš Red - polotmavý ležiak](img/IMG_20140404_234333.jpg)
+47. [Cornel IPA](img/IMG_20140520_194649.jpg)
+48. [Kocour American IPA](img/IMG_20140520_201619.jpg)
+49. [BrewDog Dead Pony Club Californian ALE](img/IMG_20140520_210857.jpg)
+50. [Kaltenecker Chopper IPA](img/IMG_1401144895284.jpg)
