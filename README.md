@@ -56,3 +56,4 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 51. Pressburg American
 52. [Pressburg Radler Malina](img/IMG_1401213696806.jpg)
 53. [Pressburg Imperial Pilsener](img/IMG_1401215502740.jpg)
+54. [Rohozec Skalak](img/IMG_1401217248992.jpg)
