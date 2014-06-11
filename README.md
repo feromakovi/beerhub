@@ -69,3 +69,4 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 64. [Karlsquell](img/IMG_1402167012385.jpg)
 65. Velkopopovicky Kozel
 66. [BrewDog Punk IPA](img/IMG_1402510258153.jpg)
+67. [Holba Serak](img/IMG_1402512987224.jpg)
