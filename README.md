@@ -72,3 +72,4 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 67. [Holba Serak](img/IMG_1402512987224.jpg)
 68. [Stupavar Vajcen Psenicne](img/IMG_1402516364087.jpg)
 69. [Heineken](img/IMG_1402610554039.jpg)
+70. [Kaltenecker Vajcen](img/IMG_1402679957165.jpg)
