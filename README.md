@@ -81,3 +81,4 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 76. Velkopopovicky Kozel
 77. Velkopopovicky Kozel
 78. [Budweiser](img/IMG_1403026646421.jpg)
+79. [Bratislavsky Leziak](img/IMG_1403108055695.jpg)
