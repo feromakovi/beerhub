@@ -96,3 +96,4 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 91. [Erdinger Weissbier](img/IMG_1404232929444.jpg)
 92. Erdinger Weissbier
 93. Erdinger Weissbier
+94. Erdinger Weissbier
