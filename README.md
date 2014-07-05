@@ -99,3 +99,4 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 94. Erdinger Weissbier
 95. Erdinger Weissbier
 96. Krusovice
+97. Krusovice
