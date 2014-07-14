@@ -108,3 +108,4 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 103. Pressburg ALE
 104. [Velkopopovicky Kozel Extra Sviezi](img/IMG_1405266967467.jpg)
 105. Velkopopovicky Kozel Extra Sviezi
+106. Staropramen
