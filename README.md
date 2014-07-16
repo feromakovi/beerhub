@@ -110,3 +110,4 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 105. Velkopopovicky Kozel Extra Sviezi
 106. Staropramen
 107. Velkopopovicky Kozel Extra Sviezi
+108. Zamocke Polotmave
