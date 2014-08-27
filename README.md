@@ -160,3 +160,4 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 155. [Albert Le Coq Imperial Ale](img/IMG_1409069002371.jpg)
 156. [Fizz Blueberry Cider](img/IMG_1409079701387.jpg)
 157. [Somersby Apple Cider](img/IMG_1409090472563.jpg)
+158. [Fizz Strawberry Cider](img/IMG_1409132516785.jpg)
