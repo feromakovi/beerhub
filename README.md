@@ -163,3 +163,4 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 158. [Fizz Strawberry Cider](img/IMG_1409132516785.jpg)
 159. Fizz Strawberry Cider
 160. [Fizz Pear Cider](img/IMG_1409252067431.jpg)
+161. [Xide Watermelon Cider](img/IMG_1409334292484.jpg)
