@@ -188,3 +188,4 @@ My records of Beer-Driven Research since 2014. Check out my [beer drinking activ
 183. Kaltenecker Atlantis IPA
 184. Heineken
 185. [Gambrinus Excelent](img/IMG_1411148089486.jpg)
+186. [Velkopopovicky Kozel](img/IMG_1411335045448.jpg)
